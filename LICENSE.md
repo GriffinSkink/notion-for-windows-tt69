@@ -1,4 +1,4 @@
-# 
+# vip Notion for Windows Utility | web-clipper + cloud-sync offers the most advanced Notion for Windows utility, with web-clipper and cloud-sync. Ideal for Windows professionals.
 
 
 
